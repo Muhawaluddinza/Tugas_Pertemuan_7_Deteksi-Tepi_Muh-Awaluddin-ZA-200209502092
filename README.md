@@ -1,0 +1,1 @@
+# Tugas_Pertemuan_7_Deteksi-Tepi_Muh-Awaluddin-ZA-200209502092
